@@ -10,6 +10,7 @@
 *   **Email:** leminhquan777@hotmail.com
 *   **LinkedIn:** linkedin.com/in/leminhquan-digital-expert
 *   **Địa chỉ:** Quận Cầu Giấy, Hà Nội, Việt Nam
+*    **Bộ sưu tập:** https://leminhquan777.github.io/lqm-tech-portfolio/
 
 ---
 
