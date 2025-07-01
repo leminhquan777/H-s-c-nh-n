@@ -7,8 +7,7 @@
 **THÔNG TIN CÁ NHÂN**
 
 *   **Ngày sinh:** 15/08/1988
-*   **Điện thoại:** (+84) 9xx-xxx-xxx
-*   **Email:** minhquan.le.expert@email.com
+*   **Email:** leminhquan777@hotmail.com
 *   **LinkedIn:** linkedin.com/in/leminhquan-digital-expert
 *   **Địa chỉ:** Quận Cầu Giấy, Hà Nội, Việt Nam
 
